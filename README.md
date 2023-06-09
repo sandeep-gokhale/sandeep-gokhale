@@ -7,3 +7,10 @@
 - 🌱 I’m currently learning [Fe₂O₃](https://www.rust-lang.org/)
 - 💬 Ask me about Javascript, React, AWS, Sql, NoSql, IAC.
 - 📫 How to reach me: [Twitter](https://twitter.com/thegokhale)
+- 🎮 Diablo / Age of Empires / Doom 2
+- 🎶 80s and 90s Rock.
+- 🥗 Strictly plant-based.
+- ✨ Teaching Students for free.
+- 🚴‍♂️ On Some weekends. (I am not fast, Yet!).
+- 🏃‍♂️ Almost daily.
+- 📖 Mostly non fiction.
